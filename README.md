@@ -8,3 +8,7 @@ disability-non-march.png https://rewirenewsgroup.com/2019/11/20/for-the-first-ti
 disability-impacts-all500px.png https://abilitymagazine.com/61-million-people-with-disabilities-in-the-united-states/
 Youtube.png https://variety.com/2022/digital/news/youtube-original-content-group-shutdown-1235156299/
 Image3.png https://businessbeacon.org/service/economic-research/
+wheelchair-interview.webp https://nypost.com/2019/09/03/disabled-workers-face-additional-challenges-getting-hired-heres-how-to-ace-the-interview/
+download (4).png https://www.istockphoto.com/photo/group-of-happy-students-communicating-in-the-corridor-gm475743720-66164513
+download (5).png https://www.usatoday.com/videos/news/justthefaqs/2021/11/17/why-cost-living-varies/8659827002/
+download.png https://www.developmentpathways.co.uk/blog/costs-of-living-disabilities/
